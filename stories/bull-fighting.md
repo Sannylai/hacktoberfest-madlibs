@@ -6,7 +6,7 @@ waves his [clothing] at the bull, which makes the bull
 [adjective] and causes him to charge. The matador then goes
 through a series of [adjective] maneuvers to avoid getting
 caught on the bull's [body part]. If the matador kills the
-bull, the spectators yell, "[spanish word]!" and throw
+bull, the spectators yell, "Si!" and throw
 their [noun]s.into the ring. If the bull wins, they yell
 "[exclamation]!" and call for another matador. Bullfighting
 is a very [adjective] sport, but it will never be popular to America
