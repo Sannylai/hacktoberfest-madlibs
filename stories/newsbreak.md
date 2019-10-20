@@ -1,5 +1,5 @@
 The president passed his physical [noun] with flying
-[noun]s this morning. Doctors gave him a [adjective]
+[noun]s this morning. Doctors gave him a bad
 bill of health, but advised him to [verb] at least twenty
 minutes a day and to eat less [adjective] food.
 
